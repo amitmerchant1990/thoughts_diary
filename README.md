@@ -1,4 +1,4 @@
-thoughts_diary
+Thoughts Diary
 ==============
 
-Just random thouhts.
+Just random thoughts.
