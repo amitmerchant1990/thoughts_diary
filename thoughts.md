@@ -4,3 +4,4 @@
 - There is a dream I'm living.. There is a life I'm dreaming of.
 - Keep a green tree in your heart, the bird will come automatically.
 - The design is finished not when there is nothing left to add, but when there is nothing left to take away.
+- For too long, you and I've been quiet..RISE UP!
