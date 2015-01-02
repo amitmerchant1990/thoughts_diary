@@ -8,3 +8,4 @@
 - “I may not have gone where I intended to go, but I think I have ended up where I needed to be.” (Douglas Adams - Hitchhiker’s Guide to the Galaxy)
 - Programmers never die. They only go offline.
 - In a mad world only the mad are sane.
+- You must be the person you have never had the courage to be.
