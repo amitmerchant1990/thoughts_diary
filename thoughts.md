@@ -9,3 +9,4 @@
 - Programmers never die. They only go offline.
 - In a mad world only the mad are sane.
 - You must be the person you have never had the courage to be.
+- You can't cross the sea merely by standing and staring at the water. - Rabindranath Tagore
