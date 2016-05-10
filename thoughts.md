@@ -12,3 +12,4 @@
 - You can't cross the sea merely by standing and staring at the water. ~ Rabindranath Tagore
 - I'm not what happened to me. I'm what I chose to become. ~ Carl Jung
 - When my heart drank water from your fountain, it drowned in you and the torrent snatched me away. ~ Rumi
+- The things that breaks you, makes you stronger.
