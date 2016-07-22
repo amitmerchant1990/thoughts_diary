@@ -14,3 +14,4 @@
 - When my heart drank water from your fountain, it drowned in you and the torrent snatched me away. ~ Rumi
 - The things that breaks you, makes you stronger.
 - Some people feel the rain, others just get wet.
+- A moment of pain is worth a lifetime of glory.
