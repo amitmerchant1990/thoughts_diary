@@ -15,3 +15,4 @@
 - The things that breaks you, makes you stronger.
 - Some people feel the rain, others just get wet.
 - A moment of pain is worth a lifetime of glory.
+- If something is too good to be be true, it probably isn't.
