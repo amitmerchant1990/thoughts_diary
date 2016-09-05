@@ -16,3 +16,12 @@
 - Some people feel the rain, others just get wet.
 - A moment of pain is worth a lifetime of glory.
 - If something is too good to be be true, it probably isn't.
+```
+How do you know if you have been initiated and are a true leader?
+
+The answer is very simple:
+
+If your actions inspire others to dream more, learn more, do more and become more, you are a leader.”
+
+— John Quincy Adams
+```
