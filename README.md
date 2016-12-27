@@ -17,3 +17,4 @@
 - A moment of pain is worth a lifetime of glory.
 - If something is too good to be be true, it probably isn't.
 - Do not go gentle into that good night!
+- Don’t worry if it doesn’t work right. If everything did, you’d be out of a job. ~Mosher’s Law of Software Engineering
